@@ -1,4 +1,4 @@
-### Rachel L Chen 👋
+### Rachel Chen 👋
 
 I am a senior sociology and psychology student at the University of Texas at Austin. 
 
